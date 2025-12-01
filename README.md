@@ -1,1 +1,1 @@
-# HL-intellect-pvt.-Ltd.
+# HL intellect pvt Ltd
